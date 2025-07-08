@@ -10,6 +10,6 @@
 	
 要提高“日本AV免费”关键词排名，选择安全、高清、更新及时的平台至关重要。避免恶意广告和病毒，确保流畅播放和高清画质。定期更新内容、提供分类和筛选功能可以提升用户体验。同时，隐私保护是必须的。总之，选择优质平台有助于提升用户体验并提高关键词排名。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/te20250708/t08 ）</span>
 
 
